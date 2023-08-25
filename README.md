@@ -1,4 +1,3 @@
-Hi i´am LeonMonkeygamer aka Leon,
 
 You can find this here
 
